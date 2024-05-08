@@ -2,7 +2,7 @@
 - 👀 I’m interested in software and website development
 - 🌱 I’m currently learning java programming
 - 💞️ I’m looking to collaborate on ...website creations
-- 📫 How to reach me ...dchelungusi@gmail.com
+- 📫 How to reach me ...damarischelungusi@strathmore.edu
 - 😄 Pronouns: ...she
 - ⚡ Fun fact: ...am queen Camilla's birthday mate
 
